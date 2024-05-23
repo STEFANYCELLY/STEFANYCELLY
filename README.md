@@ -1,5 +1,5 @@
 ## Hi there 👋
-✨ Olá! meu nome é Marcelly Stefany dos Santos de Almeida, gosto de desenhar em meu tempo livre, leio poucaas vezes, curto animes de esportes, aliás os mesu favoritos são, Free, um anime de natação e "Haikyuu!!", um anime de vôlei. Jogo vôlei desde os meus 8 anos e gosto da posição dos fundos e muito pouco na posição de libero. Escutos músicas também e gosto de lugares calmos e quietos, mersmo sendo uma pessoa ambivertida [extro e in] gosto de ficar na minha e amo pão de queijo!!!✨
+✨ Olá! meu nome é Marcelly Stefany dos Santos de Almeida, gosto de desenhar em meu tempo livre, leio poucaas vezes, curto animes de esportes, aliás os mesu favoritos são, Free, um anime de natação e "Haikyuu!!", um anime de vôlei. Jogo vôlei desde os meus 8 anos e tenho 16 hoje, no vôlei,  gosto das posições dos fundos e muito pouco na posição de libero. Escutos músicas também e gosto de lugares calmos e quietos, mersmo sendo uma pessoa ambivertida [extro e in] gosto de ficar na minha e amo pão de queijo!!!✨
 <!--
 **STEFANYCELLY/STEFANYCELLY** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
